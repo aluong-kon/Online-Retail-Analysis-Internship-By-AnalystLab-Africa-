@@ -130,5 +130,4 @@ Data Analytics Intern — AnalystLab Africa
 
 Founder & CEO — BluePeak Advisory Agency
 
-LinkedIn:
-(Add your profile link)
+
